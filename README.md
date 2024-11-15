@@ -3,6 +3,6 @@
 - 🌱 I’m currently learning a lot of new things
 
 
-Checkout my website [zura.ch](zura.ch)
+Checkout my website [zura.ch](https://zura.ch)
 
 
